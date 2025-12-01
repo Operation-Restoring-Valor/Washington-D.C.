@@ -1,5 +1,4 @@
-# Washington-D.C.
-### Operation Restoring Valor: The Capital Watchmen
+Operation Restoring Valor: The Capital Watchmen
 ===============================================
 
 **Defending the Seat of Government: A Federal Mandate for Total Security**
@@ -37,6 +36,8 @@ The FPS protects over 9,000 federal facilities. Their motto is "Secure facilitie
 The **Supreme Court Police** and **U.S. Capitol Police** have nationwide jurisdiction when protecting their charges.
 
 -   **Zero Tolerance:** An attack on a Justice or a Senator is an attack on the Constitution itself. The response must be immediate and decisive. We are not just "deterring" crime; we are actively seeking out and neutralizing those who would harm our officials.
+
+-   **No Immunity for Criminal Threats:** If a senator or any employee is caught doing something illegal that poses an immediate threat, normal rules apply. No one is immune without specific legislative authority. If the act threatens the safety of the public or the integrity of the government, law enforcement has the duty to intervene immediately.
 
 **Beating Back the Threat: A Call to Action**
 ---------------------------------------------
