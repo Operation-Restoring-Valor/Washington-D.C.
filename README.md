@@ -37,7 +37,7 @@ The **Supreme Court Police** and **U.S. Capitol Police** have nationwide jurisdi
 
 -   **Zero Tolerance:** An attack on a Justice or a Senator is an attack on the Constitution itself. The response must be immediate and decisive. We are not just "deterring" crime; we are actively seeking out and neutralizing those who would harm our officials.
 
--   **No Immunity for Criminal Threats:** If a senator or any employee is caught doing something illegal that poses an immediate threat, normal rules apply. No one is immune without specific legislative authority. If the act threatens the safety of the public or the integrity of the government, federal employees, law enforcement, and civilians have the duty to intervene immediately.
+-   **No Immunity for Criminal Threats:** If a senator or any employee is caught doing something illegal that poses an immediate threat, normal rules apply. No one is immune without specific legislative authority. If the act threatens the safety of the public or the integrity of the government; federal employees, law enforcement, and civilians have the duty to intervene immediately.
 
 **Beating Back the Threat: A Call to Action**
 ---------------------------------------------
